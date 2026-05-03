@@ -1,2 +1,2 @@
-# CareerSetuAI
-SeekhoYaar
+# SeekhoYaar AI Learning Saath
+
