@@ -1,2 +1,2 @@
-# SeekhoYaar AI Learning Saath
+# SeekhoYaar AI Learning Saathi
 
